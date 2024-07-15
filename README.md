@@ -1,5 +1,5 @@
 
-## Welcome! I'm André Luiz  👋
+### Welcome to my profile! I'm André Luiz  👋
 
 
 ### Social
